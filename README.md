@@ -1,1 +1,2 @@
-# hi just an ordinary dude who just finished his internship and is now slacking
+# arigato
+# watashi wa justyn desu
